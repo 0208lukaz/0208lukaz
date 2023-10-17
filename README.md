@@ -16,6 +16,5 @@ lucaspego227@gmail.com
 
 @lukaz_pego
 
-![](https://tenor.com/beoR5.gif)
 
 
